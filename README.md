@@ -1,2 +1,1 @@
-# jstavel.github.io
-My Personal Pages
+# My Personal Pages
