@@ -22,3 +22,7 @@ It is worth to be at home if you have family.
 Believe me!
 
 ## Stay focused
+
+## My motivation
+
+## My goals at a project
