@@ -23,13 +23,13 @@ Believe me!
 
 ## Stay focused
 
-I live at a [http://www.pasovice.cz](small vilage) in a house with large garden.
+I live at a [small vilage](http://www.pasovice.cz) in a house with large garden.
 There are a lot of work you can do!
 
 I have three children. There are so much opportunities to enjoy with
 them!
 
-[http://www.amazon.com/The-Now-Habit-Overcoming-Procrastination/dp/1585425524](The now habit)
+[The now habit](http://www.amazon.com/The-Now-Habit-Overcoming-Procrastination/dp/1585425524)
 
 ## My motivation
 
