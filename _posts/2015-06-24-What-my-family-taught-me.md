@@ -29,8 +29,8 @@ There are a lot of work you can do!
 I have three children. There are so much opportunities to enjoy with
 them!
 
-But I have to feel well if I finish some work. Do you know the feeling if you close some task as finished?
-I is pretty nice feeling.
+Do you know the feeling if you close some task as finished?
+I is pretty nice feeling. And if you use github issues it is marveous! Green check at a issue looks great!
 
 So I want to be concetrated to finish my work. Do you rememeber small children loves noises? You can make noise ssss, ssss. It makes them to be relaxed, calm them.
 
