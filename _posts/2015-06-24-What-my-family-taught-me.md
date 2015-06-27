@@ -29,8 +29,16 @@ There are a lot of work you can do!
 I have three children. There are so much opportunities to enjoy with
 them!
 
-[The now habit](http://www.amazon.com/The-Now-Habit-Overcoming-Procrastination/dp/1585425524)
+But I have to feel well if I finish some work. Do you know the feeling if you close some task as finished?
+I is pretty nice feeling.
 
+So I want to be concetrated to finish my work. Do you rememeber small children loves noises? You can make noise ssss, ssss. It makes them to be relaxed, calm them.
+
+Nice! So I took 20minutes of "Noise of storm at the river".
+
+[The now habit](http://www.amazon.com/The-Now-Habit-Overcoming-Procrastination/dp/1585425524)
+ book helped me.
+ 
 ## My motivation
 
 ## My goals at a project
