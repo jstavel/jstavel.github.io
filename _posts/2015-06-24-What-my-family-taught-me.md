@@ -5,7 +5,7 @@ title: What my family taught me
 
 Hi all,
 
-I work for National Library of Czech Republic.
+I work for National Library of Czech Republic as a lead programmer.
 I have worked already two years from home.
 And it is worth to write what I learned from it.
 
@@ -34,3 +34,9 @@ them!
 ## My motivation
 
 ## My goals at a project
+
+## Github isses page helps a lot
+
+Our team is spread over Czech Republic. Issues at github is great way to communicate with other team members.
+Even they are not programmers it is easy to publish there.
+Great way to communicate. Sure!
