@@ -29,14 +29,44 @@ There are a lot of work you can do!
 I have three children. There are so much opportunities to enjoy with
 them!
 
-[The now habit](http://www.amazon.com/The-Now-Habit-Overcoming-Procrastination/dp/1585425524)
+Do you know the feeling if you close some task as finished?
+I is pretty nice feeling. And if you use github issues it is marveous! Green check at a issue looks great!
 
+So I want to be concetrated to finish my work. Do you rememeber small children loves noises? You can make noise ssss, ssss. It makes them to be relaxed, calm them.
+
+Nice! So I took 20minutes of "Noise of storm at the river".
+
+I have a problem with our dogs. They are keen of to travel around our
+village. I do not want they do it.
+
+A solution come to me - after each 20minutes of my work I call to our
+dogs and rub them.
+
+So my working day is - listening 20minutes of "Storm at the river"
+noise, rubbing the dogs at a pause. I managed to solve those problems together!
+ 
 ## My motivation
+
+It is depressing to see a goal somewhere in a future. And the goals is
+the same, no change you see.
+
+[The now habit](http://www.amazon.com/The-Now-Habit-Overcoming-Procrastination/dp/1585425524)
+ book helped me to ask myself the right way.
+
+What is you goal? The book taught me to aks myself: "What can you do
+now for you to be happy?" Now and here?
+
+If you answer this question your working days are full of success.
 
 ## My goals at a project
 
+
 ## Github isses page helps a lot
 
-Our team is spread over Czech Republic. Issues at github is great way to communicate with other team members.
+Our team is spread over Czech Republic. Issues at github are great way to communicate with other team members.
 Even they are not programmers it is easy to publish there.
 Great way to communicate. Sure!
+
+To work from home offers you a lot of challenges and it is adventurous way. Trust me!
+So that is why I want to try to work as freelancer. I will talk to someone from toptal.com next week. I am looking forward to the talk. Great!
+
