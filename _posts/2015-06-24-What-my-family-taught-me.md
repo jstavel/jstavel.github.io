@@ -44,4 +44,4 @@ Nice! So I took 20minutes of "Noise of storm at the river".
 ## My goals at a project
 
 To work from home offers you a lot of challenges and it is adventurous way. Trust me!
-So that is why I want to try to work as freelancer. I will talk to someone from toptal.com. I am looking forward to the talk. Great!
+So that is why I want to try to work as freelancer. I will talk to someone from toptal.com next week. I am looking forward to the talk. Great!
