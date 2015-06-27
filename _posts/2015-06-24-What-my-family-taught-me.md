@@ -60,6 +60,10 @@ If you answer this question your working days are full of success.
 
 ## My goals at a project
 
+Sometimes I felt my family does thing that I do not understand. Is it
+wrong the things are evolving another way I think?
+
+No! If all of your team have the same goal the things goes well! It is important. 
 
 ## Github isses page helps a lot
 
